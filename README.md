@@ -1,0 +1,2 @@
+# seathinkings
+know ideas
